@@ -2,10 +2,9 @@
 
 <img align="right" src="https://count.getloli.com/get/@:luoke?theme=rule34">
 
-##   HELLO  ！   HELLO！   HELLO！
-
-
-
+##   HELLO Welcome to luoke's home ！
+##   HELLO Welcome to luoke's home ！   
+##   HELLO Welcome to luoke's home ！
 
 
 
